@@ -12,5 +12,5 @@ Meu nome é _Amanda_
 
 - _kisses_!!
 
-![](https://media1.tenor.com/m/qbueeW-aVkkAAAAd/feeling-pretty-belly.gif)
+![](https://media.tenor.com/8hdFQAbAk2sAAAAM/smiling-belly.gif)
 
